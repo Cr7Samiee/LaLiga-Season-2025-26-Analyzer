@@ -1,0 +1,1 @@
+# LaLiga-Season-2025-26-Analyzer
